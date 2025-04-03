@@ -1,0 +1,1 @@
+# lingta2.github.io
